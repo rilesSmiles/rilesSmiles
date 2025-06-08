@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @rilesSmiles
-- 👀 I’m interested in graphic design, web development (front end only lol), and filmmaking
-- 🌱 I’m currently learning how to speak protuguese and prepare digital assets for print
-- 💞️ I’m looking to collaborate on fun websites to hone my skills!
-- 📫 How to reach me instagram! @rileymelinaschmitz
+- 👀 I teach youngins how to use their voices wisely on the internet.
+- 🌱 I’m currently learning how to run a business!
+- 💞️ I'm a designer who codes for fun!
+- 📫 Reach me on instagram! @rileymelinaschmitz
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I act in a haunted house, and I love to scare people!
 
